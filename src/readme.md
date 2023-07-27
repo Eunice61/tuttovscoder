@@ -5,4 +5,4 @@ En invierno usa un tapado oscuro y bufandas de colores.
 Ana María siempre llega puntual al aula, deja sus cosas sobre el escritorio y saluda a todos. 
 Antes de comenzar la class, toma lista. 
 La profesora se caracteriza por su buen humor y es muy paciente a la hora de escuchar las dudas de sus alumnos. 
-Explica con ejemplos claros y sencillos y hace que sus classs sean muy participativas. 
+Explica con ejemplos claros y sencillos y hace que sus classs sean muy participativas.  
